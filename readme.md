@@ -1,1 +1,1 @@
-| [Ver Proyecto](https://Hasmoday.github.io/CodoCodo2024/proyectoLibros|
+| [Ver Proyecto](https://Hasmoday.github.io/CodoCodo2024/proyectoLibros)|
